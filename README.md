@@ -39,7 +39,7 @@ yumeship art by me hehe​
 ● 𝗶 𝘂𝘀𝗲 𝘁𝗵𝗲 𝗿𝘂𝗹𝗲 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝗻𝗮 𝗯𝗲 𝘁𝗿𝗲𝗮𝘁𝗲𝗱 𝗻𝗶𝗰𝗲, 𝘁𝗿𝗲𝗮𝘁 𝘁𝗵𝗲𝗺 𝗻𝗶𝗰𝗲 𝘁𝗼𝗼. 𝘀𝗼 𝗽𝗹𝗲𝗮𝘀𝗲 𝗼𝗻𝗹𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝗹𝘆 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝗶𝗼𝗻𝘀!
 ● 𝗜𝗪𝗖 𝗺𝗼𝘀𝘁𝗹𝘆 𝘁𝗵𝗼𝘂𝗴𝗵. 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝘁 𝗺𝘆 𝗼𝘁𝗵𝗲𝗿 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗮𝘀𝗸 𝗼𝗻 𝗪𝗛𝗜𝗦𝗣𝗘𝗥𝗦
 ​
-<img width="1090" height="1080" alt="Image" src="https://github.com/user-attachments/assets/5acf19ca-c091-48ae-8ccd-4995333fdae3" />
+<img width="1090" height="1080" alt="Image" src="https://github.com/user-attachments/assets/19469063-d378-4784-b92b-1b5ffec850b9" />
 
 ![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
 
