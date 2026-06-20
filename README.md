@@ -2,6 +2,8 @@
 
 (っ◔◡◔)っ ♥ I also do cosplays, check out my tiktok!! @peaceintheunknown ♥
 
+next cons!! : nerdfest, turcon, moricon (poland) with my little twink<3
+
 
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=913636">
