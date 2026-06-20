@@ -35,8 +35,8 @@
 🤎🥮【﻿ＳＯＭＥＴＨＩＮＧ　ＡＢＯＵＴ　ＭＥ　ＢＥＦＯＲＥ　ＩＮＴＥＲＡＣＴＩＮＧ】🥮🤎
 ● 𝗜 𝗵𝗮𝘃𝗲 𝘀𝗲𝘃𝗲𝗿𝗲 𝘀𝗼𝗰𝗶𝗮𝗹 𝗮𝗻𝘅𝗶𝗲𝘁𝘆, 𝗶 𝗱𝗼 𝗴𝗲𝘁 𝗻𝗲𝗿𝘃𝗼𝘂𝘀 𝘄𝗵𝗲𝗻 𝘀𝗼𝗺𝗲𝗼𝗻𝗲 𝗮𝗽𝗽𝗿𝗼𝗮𝗰𝗵𝗲𝘀 𝗺𝗲. 𝗦𝗼 𝗶𝗳 𝗶 𝗱𝗼𝗻𝘁 𝗿𝗲𝗽𝗹𝘆 𝗳𝗼𝗿 𝗮 𝗺𝗼𝗺𝗲𝗻𝘁 𝗼𝗿 𝘀𝗮𝘆 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 𝗼𝘂𝘁 𝗼𝗳 𝗵𝗮𝗻𝗱, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲.
 ● 𝗶 𝘂𝘀𝗲 𝘁𝗵𝗲 𝗿𝘂𝗹𝗲 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝗻𝗮 𝗯𝗲 𝘁𝗿𝗲𝗮𝘁𝗲𝗱 𝗻𝗶𝗰𝗲, 𝘁𝗿𝗲𝗮𝘁 𝘁𝗵𝗲𝗺 𝗻𝗶𝗰𝗲 𝘁𝗼𝗼. 𝘀𝗼 𝗽𝗹𝗲𝗮𝘀𝗲 𝗼𝗻𝗹𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝗹𝘆 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝗶𝗼𝗻𝘀!
-● 𝗜𝗪𝗖 𝗺𝗼𝘀𝘁𝗹𝘆 𝘁𝗵𝗼𝘂𝗴𝗵. 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝘁 𝗺𝘆 𝗼𝘁𝗵𝗲𝗿 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗮𝘀𝗸 𝗼𝗻 𝗪𝗛𝗜𝗦𝗣𝗘𝗥𝗦
-​
+● 𝗜𝗪𝗖 𝗺𝗼𝘀𝘁𝗹𝘆 𝘁𝗵𝗼𝘂𝗴𝗵. 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝘁 𝗺𝘆 𝗼𝘁𝗵𝗲𝗿 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗮𝘀𝗸 𝗼𝗻 𝗪𝗛𝗜𝗦𝗣𝗘𝗥𝗦.
+​ please dont pressure me into keeping up the conversations, im so bad at it :(( i'll talk more once im comfortable. i am a great listener though,!
 <img width="1090" height="1080" alt="Image" src="https://github.com/user-attachments/assets/19469063-d378-4784-b92b-1b5ffec850b9" />
 
 ![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
