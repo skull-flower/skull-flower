@@ -49,7 +49,6 @@
 ​ please dont pressure me into keeping up the conversations, im so bad at it :(( i'll talk more once im comfortable. i am a great listener though,!
 
 ⋆.ೃ࿔🌸*:･
-
 <img width="1090" height="1080" alt="Image" src="https://github.com/user-attachments/assets/19469063-d378-4784-b92b-1b5ffec850b9" />
 
 ![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
