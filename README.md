@@ -12,7 +12,7 @@
 
 ⋆.ೃ࿔🌸*:･
 
-【﻿🎀 ＢＡＳＩＣ　ＤＮＩ 🎀】
+【﻿🎀 ＤＮＩ 🎀】
 ● angelo dalton, daisuke juarez, cashew (blush blush) , and hunter sylvester doubles KINDLY dni pls! (unless already friends) :D.
 ● making dirty jokes very often when we arent friends.
 ● 𝗣𝗲𝗱0𝗽𝗵𝗶𝗹𝗲, 𝗦3𝘅𝘂𝗮𝗹𝗶𝘇𝗲𝘀 𝗠𝗶𝗻𝗼𝗿𝘀, 𝗝𝗼𝗸𝗲𝘀 𝗔𝗯𝗼𝘂𝘁 𝗥×𝗽𝗲, 𝗲𝘁𝗰.
