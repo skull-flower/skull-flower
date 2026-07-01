@@ -4,8 +4,6 @@
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : turcon, moricon (poland) with my bestest hb<3  ⋆ ˚｡🎱⋆ ˚｡
 
-<img width="220" height="198" alt="mammon-obey-me" src="https://github.com/user-attachments/assets/97dbca4c-7b57-4aa3-8337-acb0dc636797" />
-
 
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=913636">
@@ -15,6 +13,8 @@
 ⋆.ೃ࿔🎱*:･
 
 <img width="220" height="194" alt="obey-me-mammon" src="https://github.com/user-attachments/assets/ae7ef64b-19db-48f0-9e02-00c64f559b57" />
+
+<img width="220" height="198" alt="mammon-obey-me" src="https://github.com/user-attachments/assets/4e157051-3f3a-4349-bc87-cdbd82d8344c" />
 
 
 【﻿♟️ ＤＮＩ ♟️】
