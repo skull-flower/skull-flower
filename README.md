@@ -49,15 +49,9 @@
 ​ please dont pressure me into keeping up the conversations, im so bad at it :(( i'll talk more once im comfortable. i am a great listener though,!
 
 ⋆.ೃ࿔🎱*:･
-<img width="1090" height="1080" alt="Image" src="https://github.com/user-attachments/assets/19469063-d378-4784-b92b-1b5ffec850b9" />
 
-![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
+<img width="220" height="124" alt="mammon-obey-me-obey-me" src="https://github.com/user-attachments/assets/86fa39b7-5890-45d1-8d3f-9cec116523a8" />
 
-
-![tumblr_e8b7532426ae00fa981f50b40021122a_63111144_640](https://github.com/user-attachments/assets/092ad4f5-dd5f-46e9-af67-2187c1bafd93)
+<img width="220" height="124" alt="obey-me-obey-me-anime" src="https://github.com/user-attachments/assets/8ad393b7-3e0b-456b-a23d-60a0e2091d36" />
 
 
-![tumblr_0772baf21c9ccea497172b0721d9a09e_ddfee018_500](https://github.com/user-attachments/assets/1ac71067-072d-42fa-b646-f7f604c9a3a7)
-
-
-![tumblr_e64a5de1c3b70903e36b2011aba20227_b590c1bf_500](https://github.com/user-attachments/assets/d9bfe78a-46b0-42f7-bfff-28c99da975df)
