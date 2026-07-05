@@ -2,7 +2,7 @@
 
 (っ◔◡◔)っ ♥ I also do cosplays, check out my tiktok!! @peaceintheunknown ♥ ──★ ˙🍙 ̟ !!
 
-⋆ ˚｡🎱⋆ ˚｡ next cons!! : turcon, moricon (poland) with my bestest hb<3  ⋆ ˚｡🎱⋆ ˚｡
+⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with my bestest hb<3  ⋆ ˚｡🎱⋆ ˚｡
 
 
   <a href="https://github.com/kittinan/spotify-github-profile">
