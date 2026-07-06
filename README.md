@@ -18,7 +18,6 @@
 
 
 【﻿♟️ ＤＮＩ ♟️】
-● angelo dalton, daisuke juarez, cashew (blush blush) , Mammon, and hunter sylvester doubles KINDLY dni pls! (unless already friends) :D.
 ● making dirty jokes very often when we arent friends.
 ● 𝗣𝗲𝗱0𝗽𝗵𝗶𝗹𝗲, 𝗦3𝘅𝘂𝗮𝗹𝗶𝘇𝗲𝘀 𝗠𝗶𝗻𝗼𝗿𝘀, 𝗝𝗼𝗸𝗲𝘀 𝗔𝗯𝗼𝘂𝘁 𝗥×𝗽𝗲, 𝗲𝘁𝗰.
 ● 𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦.
@@ -36,6 +35,7 @@
 ● 𝗙𝗡𝗔𝗙 𝗿𝗲𝗹𝗮𝘁𝗲𝗱 𝘀𝗵𝗶𝗽𝘀...
 ● 𝗦𝗲𝗹𝗳-𝗱𝗶𝗮𝗴𝗻𝗼𝘀𝗶𝗻𝗴 𝗽𝗲𝗼𝗽𝗹𝗲.
 ● 𝗥𝗲𝗺𝗲𝗺𝗯𝗲𝗿 𝗶𝘁𝘀 𝘁𝗵𝗶𝗻 𝗶𝗰𝗲 𝗮𝗻𝗱 𝘆'𝗮𝗹𝗹 𝗖𝗔𝗡 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲
+● angelo dalton, daisuke juarez, cashew (blush blush) , Mammon, and hunter sylvester doubles KINDLY iwc pls! (unless friends) :D.
 
 ⋆.ೃ࿔🎱*:･
 
