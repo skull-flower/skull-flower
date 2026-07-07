@@ -35,7 +35,7 @@
 ● 𝗙𝗡𝗔𝗙 𝗿𝗲𝗹𝗮𝘁𝗲𝗱 𝘀𝗵𝗶𝗽𝘀...
 ● 𝗦𝗲𝗹𝗳-𝗱𝗶𝗮𝗴𝗻𝗼𝘀𝗶𝗻𝗴 𝗽𝗲𝗼𝗽𝗹𝗲.
 ● 𝗥𝗲𝗺𝗲𝗺𝗯𝗲𝗿 𝗶𝘁𝘀 𝘁𝗵𝗶𝗻 𝗶𝗰𝗲 𝗮𝗻𝗱 𝘆'𝗮𝗹𝗹 𝗖𝗔𝗡 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲
-● angelo dalton, daisuke juarez, cashew (blush blush) , Mammon, and hunter sylvester doubles KINDLY iwc pls! (unless friends) :D.
+● angelo dalton, daisuke juarez, cashew (blush blush) , Mammon, Rui Kamishiro and hunter sylvester doubles KINDLY iwc pls! (unless friends) :D.
 
 ⋆.ೃ࿔🎱*:･
 
