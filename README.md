@@ -4,7 +4,7 @@
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with my bestest hb<3  ⋆ ˚｡🎱⋆ ˚｡
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Montenegrin+Gothic+One&duration=4000&pause=400&color=F7F7F7&width=446&height=54&lines=I+swore+I'd+never+sin+again...;But+my+patience's+running+thin!!;The+temptation+flowing+through+my+veins%2C;I'm+bounded+by+these+shackles+of+shame!;I+promised+I'd+indulge+no+more...;But+my+heart+I+can't+ignore!;In+my+dreams+they're+turning+up+the+heat%2C;I'm+a+dirty%2C+rotten+girl.+.+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Yuyu&size=25&duration=4000&pause=500&color=F7F7F7&width=446&height=54&lines=I'll+take+a+quiet+life%2C;A+handshake+of+carbon+monoxide.)](https://git.io/typing-svg)
 
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=913636">
