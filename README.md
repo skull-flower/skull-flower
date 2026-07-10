@@ -12,6 +12,9 @@
 
 ⋆.ೃ࿔🎱*:･
 
+
+✩░▒▓▆▅▃▂▁𝐆𝐞𝐧𝐬𝐡𝐢𝐧 ! : ▁▂▃▅▆▓▒░✩ 731082122
+
 <img width="220" height="194" alt="obey-me-mammon" src="https://github.com/user-attachments/assets/ae7ef64b-19db-48f0-9e02-00c64f559b57" />
 
 <img width="220" height="198" alt="mammon-obey-me" src="https://github.com/user-attachments/assets/4e157051-3f3a-4349-bc87-cdbd82d8344c" />
