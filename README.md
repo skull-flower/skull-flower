@@ -53,6 +53,7 @@
 
 ♟️🎹【﻿ＳＯＭＥＴＨＩＮＧ　ＡＢＯＵＴ　ＭＥ　ＢＥＦＯＲＥ　ＩＮＴＥＲＡＣＴＩＮＧ】🎹♟️
 ● 𝗜 𝗵𝗮𝘃𝗲 𝘀𝗲𝘃𝗲𝗿𝗲 𝘀𝗼𝗰𝗶𝗮𝗹 𝗮𝗻𝘅𝗶𝗲𝘁𝘆, i do get nervous VERY very fast and may slow resp, please bear and be patient with me lovelies! ^^''
+● I'm also offtab or playing games most of the time, pls whisper if noresp! and oomfies stop telling me ur too anxious to int with me i assure you i love you and IM SCARED TOO so the chances ill int first are VERY mild
 ● 𝗶 𝘂𝘀𝗲 𝘁𝗵𝗲 𝗿𝘂𝗹𝗲 𝗶𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝗻𝗮 𝗯𝗲 𝘁𝗿𝗲𝗮𝘁𝗲𝗱 𝗻𝗶𝗰𝗲, 𝘁𝗿𝗲𝗮𝘁 𝘁𝗵𝗲𝗺 𝗻𝗶𝗰𝗲 𝘁𝗼𝗼. 𝘀𝗼 𝗽𝗹𝗲𝗮𝘀𝗲 𝗼𝗻𝗹𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝗹𝘆 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝗶𝗼𝗻𝘀!
 ● 𝗜𝗪𝗖 𝗺𝗼𝘀𝘁𝗹𝘆 𝘁𝗵𝗼𝘂𝗴𝗵.
 ​ please dont pressure me into keeping up the conversations, im so bad at it :(( i'll talk more once im comfortable. i am a great listener though,!
