@@ -13,6 +13,8 @@
 
 ⋆.ೃ࿔🎱*:･
 
+MY STRAWPAGE IS BEST VIEWED ON PC chuu~ 
+
 
 ✩░▒▓▆▅▃▂▁𝐆𝐞𝐧𝐬𝐡𝐢𝐧 ! : ▁▂▃▅▆▓▒░✩ 731082122
 
