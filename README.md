@@ -2,7 +2,7 @@
 
 (っ◔◡◔)っ ♥ I also do cosplays, check out my tiktok!! @peaceintheunknown ♥ ──★ ˙🍙 ̟ !!
 
-⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with my bestest hb<3  ⋆ ˚｡🎱⋆ ˚｡
+⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko<3  ⋆ ˚｡🎱⋆ ˚｡
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Yuyu&size=25&duration=4000&pause=500&color=F7F7F7&width=446&height=54&lines=I'll+take+a+quiet+life%2C;A+handshake+of+carbon+monoxide.)](https://git.io/typing-svg)
 
