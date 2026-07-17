@@ -1,7 +1,5 @@
 𝙳𝚘 𝙽𝙾𝚃 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜. taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
 
-(っ◔◡◔)っ ♥ I also do cosplays, check out my tiktok!! @peaceintheunknown ♥ ──★ ˙🍙 ̟ !!
-
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko<3  ⋆ ˚｡🎱⋆ ˚｡
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Yuyu&size=25&duration=4000&pause=500&color=F7F7F7&width=446&height=54&lines=I'll+take+a+quiet+life%2C;A+handshake+of+carbon+monoxide.)](https://git.io/typing-svg)
@@ -13,7 +11,7 @@
 
 ⋆.ೃ࿔🎱*:･
 
-MY STRAWPAGE IS BEST VIEWED ON PC chuu~ 
+MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 
 ✩░▒▓▆▅▃▂▁𝐆𝐞𝐧𝐬𝐡𝐢𝐧 ! : ▁▂▃▅▆▓▒░✩ 731082122
