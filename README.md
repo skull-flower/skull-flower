@@ -2,7 +2,7 @@
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko<3  ⋆ ˚｡🎱⋆ ˚｡
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Galindo&size=15&duration=4000&pause=500&color=F7F7F7&width=446&height=54&lines=An+honest+sinner+'til+I+die;What's+the+harm+if+I+don't+mind%3F;With+the+paddle+that+empowers+me;I+can+live+a+sinful+life!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&size=15&duration=4000&pause=500&color=F7F7F7&width=446&height=54&lines=I+am+not+afraid+to+keep+on+living;I+am+not+afraid+to+walk+this+world+alone;Honey%2C+if+you+stay%2C+I'll+be+forgiven;Nothing+you+can+say+can+stop+me+going+home)](https://git.io/typing-svg)
 
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=913636">
