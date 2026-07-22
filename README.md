@@ -1,6 +1,6 @@
 𝙳𝚘 𝙽𝙾𝚃 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜. taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
 
-![](https://komarev.com/ghpvc/?skull-flower&label=born+to+die)
+![](https://komarev.com/ghpvc/?username=skull-flower&label=born+to+die)
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko<3  ⋆ ˚｡🎱⋆ ˚｡
 
