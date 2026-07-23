@@ -1,4 +1,4 @@
-𝙳𝚘 𝙽𝙾𝚃 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜. taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
+do not copy my ponies please! taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
 
 ![](https://komarev.com/ghpvc/?username=skull-flower&label=born+to+die&color=yellow)
 
