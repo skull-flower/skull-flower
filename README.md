@@ -1,4 +1,5 @@
 do not copy my ponies please! taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
+I do NOT rp ! sorry
 
 ![](https://komarev.com/ghpvc/?username=skull-flower&label=born+to+die&color=yellow)
 
