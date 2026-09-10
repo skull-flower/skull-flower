@@ -3,7 +3,7 @@ I do NOT rp ! sorry
 
 ![](https://komarev.com/ghpvc/?username=skull-flower&label=born+to+die&color=yellow)
 
-⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko<3  ⋆ ˚｡🎱⋆ ˚｡
+⋆ ˚｡🎱⋆ ˚｡ next cons!! : moricon (poland) with niko/ami<3  ⋆ ˚｡🎱⋆ ˚｡
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Alfa+Slab+One&size=15&duration=4000&pause=500&color=F74E44&width=446&height=54&lines=The+magic+of+the+moon+is%E2%80%A6+shalle+a+le+rilla!;Because+we+whisper+in+sweet+voices..;If+one+more+wish+comes+true%2C;I+want+to+hold+hands+and+laugh+with+you.)](https://git.io/typing-svg)
 
