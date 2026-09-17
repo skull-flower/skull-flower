@@ -6,7 +6,7 @@ I do NOT rp ! sorry
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : ??? (poland) with niko/ami<3  ⋆ ˚｡🎱⋆ ˚｡
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Alfa+Slab+One&size=15&duration=4000&pause=500&color=F74E44&width=446&height=54&lines=The+magic+of+the+moon+is%E2%80%A6+shalle+a+le+rilla!;Because+we+whisper+in+sweet+voices..;If+one+more+wish+comes+true%2C;I+want+to+hold+hands+and+laugh+with+you.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=25&duration=4000&pause=500&color=F72955&width=446&height=54&lines=sentensei!+aragaenai!;jikan+mo+anata+no+aijou+mo;tsugi+jei+kei!+aragaenai!;chiisana+josei+ni+wa+mou+modorenai+no)](https://git.io/typing-svg)
 
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f2cd45)
 
