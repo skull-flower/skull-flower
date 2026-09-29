@@ -1,9 +1,9 @@
 do not copy my ponies please! taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
 I do NOT rp ! sorry
 
-‧˚꒰🍨꒱ check out my tiktok !! @cocopuffscocoo ₊˚⋆
+‧˚꒰🍨꒱ tiktok : @cocopuffscocoo ₊˚⋆
 
-‧˚꒰🍨꒱ discord : mammoneyyyyy
+‧˚꒰🍨꒱ discord : mammoneyyyyy ₊˚⋆
 
 ![](https://komarev.com/ghpvc/?username=skull-flower&label=born+to+die&color=yellow)
 
