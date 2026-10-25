@@ -9,7 +9,7 @@ I do NOT rp ! sorry
 
 ⋆ ˚｡🎱⋆ ˚｡ next cons!! : ??? (poland) with niko/ami<3  ⋆ ˚｡🎱⋆ ˚｡
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=25&duration=4000&pause=500&color=F72955&width=446&height=54&lines=sentensei!+aragaenai!;jikan+mo+anata+no+aijou+mo;tsugi+jei+kei!+aragaenai!;chiisana+josei+ni+wa+mou+modorenai+no)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fjalla+One&size=24&duration=4000&pause=500&color=FD5086&width=450&height=54&lines=If+there+was+a+terrorist+attack+on+my+classroom;I'd+be+a+part+of+it%2C+to+be+honest;You're+the+only+one+i+wouldn't+kill%2C;You'll+be+my+hostage+forever+!)](https://git.io/typing-svg)
 
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f2cd45)
 
